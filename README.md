@@ -2,4 +2,4 @@
 
 Я люблю котиков!
 
-![Alt text](kot_geterohromiia_chernyj_kot_128354_1280x720.jpg)
+![Kotic](1678398672_sneg-top-p-chernii-kot-na-fone-luni-11.jpg)
